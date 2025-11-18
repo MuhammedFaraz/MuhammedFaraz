@@ -11,7 +11,7 @@
 
 - ⚡ Fun fact **I'm batman 🦇**
 
-<h3 align="left">Connect with me:</h3>
+<h3 align="left">Connect with me: x.com/farazaldin</h3>
 <p align="left">
 </p>
 
