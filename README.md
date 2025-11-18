@@ -7,7 +7,7 @@
 
 - 📝 I share my articles on [https://faraz.hashnode.dev](https://faraz.hashnode.dev)
 
-- 📫 How to reach me **x.com/farazaldin**
+- 📫 Reach me on **x.com/farazaldin**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
